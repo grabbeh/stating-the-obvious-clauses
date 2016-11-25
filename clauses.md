@@ -2,7 +2,7 @@
 
     The language used in this Agreement shall be deemed to the language chosen by the parties hereto to express their mutual agreement
     
-**The meaning of general words*
+**The meaning of general words**
 
     Words and phrases not otherwise defined shall be given their ordinary meanings.
     
